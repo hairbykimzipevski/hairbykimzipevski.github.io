@@ -1,3 +1,7 @@
+---
+permalink: /index.html
+---
+
 # About Hair by Kim Zipevski
 Kim Zipevski focuses on each individual to ensure she achieves the clients desired result!
 
