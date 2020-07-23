@@ -14,9 +14,9 @@ Kim specialises in Extensions using Russian 100% Human 100% Remy Hair. Mircobead
 Kim uses Alfaparf Lisse Design Keratin Treatment which is a smoothing treatment that is completed on the same day (No more having to leave it in for 3 days!!!) All services including colour can be done on the same day!
 
 Hair by Kim Zipevski caters for all your hair needs.
-*Extensions
-*Colouring,
-*Cuts
-*Blowdys and Upstyles
-*Keratin Treatment
-*Products
+- Extensions
+- Colouring,
+- Cuts
+- Blowdys and Upstyles
+- Keratin Treatment
+- Products
